@@ -7,7 +7,8 @@
 - Estou me desenvolvendo na linguagem Javascript
 - Vou utilizar esse espaço para compartilhar os meus projetos e para a minha organização. Se eu não esquecer login e senha, é lucro
 
-![transferir]()
+![› ENHYPEN CONTENT_ ✔ - OOO_](https://github.com/lvsooul/lvsooul/assets/170729479/dfb49dfb-dba9-40f8-854e-4ed76f80f901)
+
 
 
 ## 𝘝𝘰𝘤𝘦̂𝘴 𝘱𝘰𝘥𝘦𝘮 𝘦𝘯𝘵𝘳𝘢𝘳 𝘦𝘮 𝘤𝘰𝘯𝘵𝘢𝘵𝘰 𝘤𝘰𝘮𝘪𝘨𝘰 𝘯𝘰 𝘦-𝘮𝘢𝘪𝘭 
