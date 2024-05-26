@@ -13,10 +13,14 @@
 - Eu literalmente amo muito o meu namoradinho e o enhypen ! 🤍
 - Ano que vem vou terminar a escola AAAAA < // 3
 - Estou definindo meu estilo ainda.
-- Amo escutar ariana grande, lana, taylor, sabrina, kali e por ai vai.. POSSO DEIXAR O LINK DA MINHA PLAYLIST LOGO LOGO AQUI!! 
+- Amo escutar ariana grande, lana, taylor, sabrina, kali e por ai vai.. POSSO DEIXAR O LINK DA MINHA PLAYLIST LOGO LOGO AQUI!!
+- Adoro desenhos animado
+- Amo rosa
+- Amo morangos, moranguinho TUDO QUE TENHa moRANGUINHOS!!🍓🍰🎀💗
 
-_Até então essas são todas as informações que eu gostaria de ter colocado aqui_
-  _Não coloquei muitas pois eu sei que tem pessoas que vão ler isso e ficar "mas quem te perguntou essas coisas?" e deixando claro SÓ ACHEI LEGAL COMPARTILHAR !!_
+> [!NOTE]
+> Deixando claro aqui sobre as coisas que listei acima. São informações que coloquei por conta própria e que eu achei legal compartilhar. Caso tenha algum engraçadinho que fale consigo mesmo "qm t perguntou algo?" simples, são coisas que achei do meu interesse compartilhar e se você se incomodou, SIMPLES NOVAMENTE, passe a diante!!! 
+
 
  **=D**
 
@@ -27,7 +31,8 @@ _Até então essas são todas as informações que eu gostaria de ter colocado a
 
 ## 𝘝𝘰𝘤𝘦̂𝘴 𝘱𝘰𝘥𝘦𝘮 𝘦𝘯𝘵𝘳𝘢𝘳 𝘦𝘮 𝘤𝘰𝘯𝘵𝘢𝘵𝘰 𝘤𝘰𝘮𝘪𝘨𝘰 𝘯𝘰 𝘦-𝘮𝘢𝘪𝘭 
 > 𝘱𝘰𝘤𝘩𝘢𝘤𝘤𝘰𝘢𝘳𝘵@𝘨𝘮𝘢𝘪𝘭.𝘤𝘰𝘮 !!  ૮꒰  ˘ ˘ ꒱ა
-> 𝐨𝐮 𝐯𝐨𝐜𝐞̂ 𝐩𝐨𝐝𝐞 𝐦𝐞 𝐬𝐞𝐠𝐮𝐢𝐫 𝐧𝐨 𝐭𝐰𝐢𝐭𝐭𝐞𝐫 @𝐥𝐯𝐬𝐨𝐨𝐮𝐥 < 3
+
+>_𝐨𝐮 𝐯𝐨𝐜𝐞̂ 𝐩𝐨𝐝𝐞 𝐦𝐞 𝐬𝐞𝐠𝐮𝐢𝐫 𝐧𝐨 𝐭𝐰𝐢𝐭𝐭𝐞𝐫 @𝐥𝐯𝐬𝐨𝐨𝐮𝐥 < 3_
 
 
       
