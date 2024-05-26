@@ -18,6 +18,8 @@
 - Amo rosa
 - Amo morangos, moranguinho TUDO QUE TENHa moRANGUINHOS!!🍓🍰🎀💗
 
+  ![transferir](https://github.com/lvsooul/lvsooul/assets/170729479/026c1bd4-f0b8-441c-8b63-1d20e0a7ea00)
+
 > [!NOTE]
 > Deixando claro aqui sobre as coisas que listei acima. São informações que coloquei por conta própria e que eu achei legal compartilhar. Caso tenha algum engraçadinho que fale consigo mesmo "qm t perguntou algo?" simples, são coisas que achei do meu interesse compartilhar e se você se incomodou, SIMPLES NOVAMENTE, passe a diante!!! 
 
